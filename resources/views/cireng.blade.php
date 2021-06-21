@@ -112,7 +112,7 @@
                 <li>8. Kemudian goreng cireng dalam minyak panas dan api sedang. kalo adonan sesuai step diatas, cireng bakal mengembang dan berwarna putih</li>
                 <li>9. Cantik kan hasil nya.. aku sarankan segera dimakan deh pas anget anget gini, enak banget masih renyah renyah lembut gitu.. :P</li>
                 <li>10. Untuk Cocolan bisa pake bumbu rujak, kalo aku karena enggak punya bumbu rujak aku pake sambel kecap, hmmmm... habis banyak dah kalo makan ini.. lupa sama dietku :D Selamat mencoba..</li>
-                <li>PS : bisa untuk stok Frozen juga loh.. Enak deh kalo laper tinggal Goreng Sreeng.. Jadi deh.. 😂😂</li>
+                <li>PS :bisa untuk stok Frozen juga loh.. Enak deh kalo laper tinggal Goreng Sreeng.. Jadi deh.. 😂😂</li>
             </ul>
            
         </div>
