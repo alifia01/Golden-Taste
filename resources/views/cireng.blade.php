@@ -109,7 +109,7 @@
                 <li>5. Ambil adonan 10 gr, bulatkan kalo mau diberi isian beri sedikit Keju Mozza. atau beri isian lainnya sesuai selera.</li>
                 <li>6. Lalu Pipihkan adonan cireng seperti ini, jangan terlalu tipis ya.. apalagi kalo pake isian</li>
                 <li>7. Hasil nya Lumayan banyak nih.. jadi 13-15 biji tergantung ukuran dan berat adonan.</li>
-                <li>8. Goreng cireng dalam minyak panas dan api sedang. kalo adonan sesuai step diatas, cireng bakal mengembang dan berwarna putih</li>
+                <li>8. Kemudian goreng cireng dalam minyak panas dan api sedang. kalo adonan sesuai step diatas, cireng bakal mengembang dan berwarna putih</li>
                 <li>9. Cantik kan hasil nya.. aku sarankan segera dimakan deh pas anget anget gini, enak banget masih renyah renyah lembut gitu.. :P</li>
                 <li>10. Untuk Cocolan bisa pake bumbu rujak, kalo aku karena enggak punya bumbu rujak aku pake sambel kecap, hmmmm... habis banyak dah kalo makan ini.. lupa sama dietku :D Selamat mencoba..</li>
                 <li>PS : bisa untuk stok Frozen juga loh.. Enak deh kalo laper tinggal Goreng Sreeng.. Jadi deh.. 😂😂</li>
